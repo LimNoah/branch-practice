@@ -14,4 +14,8 @@
 
 ## The Amazing Spider Man 1
 
-- 2012, Anderew Garfield
+- 2012, Andrew Garfield
+
+## The Amazing Spider Man 2
+
+- 2014, Andrew Garfield

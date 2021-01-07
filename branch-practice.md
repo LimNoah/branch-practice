@@ -11,3 +11,7 @@
 ## Spider-Man 3
 
 - 2007, Tobey Maguire
+
+## The Amazing Spider Man 1
+
+- 2012, Anderew Garfield

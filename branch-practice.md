@@ -12,10 +12,10 @@
 
 - 2007, Tobey Maguire
 
-## The Amazing Spider Man 1
+## The Amazing Spider-Man 1
 
 - 2012, Andrew Garfield
 
-## The Amazing Spider Man 2
+## The Amazing Spider-Man 2
 
 - 2014, Andrew Garfield
